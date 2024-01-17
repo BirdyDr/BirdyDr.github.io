@@ -1,1 +1,1 @@
-[delikely.github.io](https://delikely.github.io)
+https://birdydr.github.io/
